@@ -1,0 +1,1 @@
+# gemutro-resolusi
